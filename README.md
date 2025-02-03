@@ -1,5 +1,8 @@
 # mrrearm.github.io
-Benvenuti!!! 
+Benvenuti!!! 😊😊😊
+
 Qui trovate tutti i miei social:
 https://unit.link/ray-d
-https://bio.site/RayDRearm
+https://bio.site/RayDRearm 
+
+✌️😊✌️
