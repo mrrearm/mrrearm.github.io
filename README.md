@@ -1,1 +1,1 @@
-Piccola landing page di presentazione in stile cybetech. 
+Piccola landing page di presentazione in stile cybertech. 
